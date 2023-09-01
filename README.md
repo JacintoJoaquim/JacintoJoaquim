@@ -1,0 +1,2 @@
+- 👋 Olá sou o JacintoJoaquim, e sou de Angola
+- 👀 Amo a tecnologia e encontrar e formas e métodos de a desenvolver mais e mais só me apaixono mais ainda, por isso estudo Eletrónica Telecomunicação e programação 
